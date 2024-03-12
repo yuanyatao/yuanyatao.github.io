@@ -1,2 +1,1 @@
-# yuanyatao.github.io
-my first blog
+# yt love wjx
